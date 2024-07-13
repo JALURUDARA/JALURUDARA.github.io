@@ -1,1 +1,0 @@
-# JALURUDARA.github.io
